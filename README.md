@@ -7,8 +7,7 @@ From academic depth to poetic flow, I love shaping words to fit both purpose and
 Clear, well-researched, and reader-friendly.  
 I write papers, case studies, and structured technical content with precision and a human touch.
 
-[Gender Bias in Tech](https://drive.google.com/file/d/1gJ8RMkJMz1ZGUzAHzEl523DvZUQRxIBg/view?usp=drive_link) <a href="https://drive.google.com/file/d/1gJ8RMkJMz1ZGUzAHzEl523DvZUQRxIBg/view?usp=drive_link" target="_blank">Visit Example</a>
-
+[Gender Bias in Tech](https://drive.google.com/file/d/1gJ8RMkJMz1ZGUzAHzEl523DvZUQRxIBg/view?usp=drive_link)
 [RESEARCH PROJECT ON CRISIS MANAGEMENT IN THE HOSPITALITY SERVICE INDUSTRY](https://drive.google.com/file/d/13cVFpCKMGqgQ55F5B7gCZdg46PAslvCX/view?usp=drive_link)
 [The Power of Price (Discrusive Essay](https://drive.google.com/file/d/1rkUXSmkfS7Q-h8nDCO4OoOO2Rdz0HMtD/view?usp=drive_link)
 [Academic Articles](https://drive.google.com/file/d/1xMcy2x4o8iIsuFbddhDlOehbMqfEH23j/view?usp=drive_link)
