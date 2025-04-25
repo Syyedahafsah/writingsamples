@@ -1,4 +1,4 @@
-# writingsamples
+# Writing Samples
 A little library of essays, papers, and reflections I’ve written over time.
 # Hi, I'm Syeda Hafsa!
 Welcome to my writing portfolio — a curated collection that reflects my voice across different formats and topics.  
