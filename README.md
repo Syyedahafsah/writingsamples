@@ -38,6 +38,6 @@ Short, heartfelt, and often whimsical — where simplicity meets emotion.
 ---
 
 ## 📬 Let’s Connect
-- 💼 [LinkedIn](www.linkedin.com/in/syeda-hafsah25)
+- 💼 [LinkedIn](https://www.linkedin.com/in/syeda-hafsah25/)
 - 
 - 🧰 [Upwork](https://www.upwork.com/freelancers/~019c40326a139ef17e?mp_source=share)
