@@ -15,7 +15,7 @@ I write papers, case studies, and structured technical content with precision an
 
 [Academic Articles](https://drive.google.com/file/d/1xMcy2x4o8iIsuFbddhDlOehbMqfEH23j/view?usp=drive_link)
 
-[STEM LESSON PLANS] (https://docs.google.com/document/d/1cnxFyBu9kSSuTLsPrLthyIOR1Q-0iJ4o/edit?usp=sharing&ouid=108427463081927064253&rtpof=true&sd=true)
+[STEM LESSON PLANS](https://docs.google.com/document/d/1cnxFyBu9kSSuTLsPrLthyIOR1Q-0iJ4o/edit?usp=sharing&ouid=108427463081927064253&rtpof=true&sd=true)
 ## 📚 Book Projects
 Long-form writing that dives deep into human experiences, storytelling, and self-reflection.
 
